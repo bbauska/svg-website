@@ -12,3 +12,7 @@ https://www.fffuel.co/
 
 https://svgdoodles.com/
 
+https://patternpad.com/
+
+https://www.svgeez.com/
+
